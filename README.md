@@ -1,1 +1,1 @@
-# iNeuronix.ai-website
+# iNeuronix.ai Pvt Ltd
